@@ -1,3 +1,0 @@
-# Edosa Kelvin
-
-Hi!
